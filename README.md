@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **dhruvsharma8773@gmail.com**
 
-- 📄 Know about my experiences [Fresher](Fresher)
+- 📄 Know about my experiences learner
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
